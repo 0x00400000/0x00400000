@@ -1,1 +1,1 @@
-Software Engineer at Eklipse Research Group
+Software Engineer at ERG
